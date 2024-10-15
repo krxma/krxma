@@ -1,0 +1,22 @@
+- 👋 Hi, I’m @krxma
+- 👀 I’m interested in Playboi Carti
+- 🌱 I’m currently learning Playboi Carti
+- 💞️ I’m looking to collaborate on Playboi Carti
+- 📫 How to reach me Playboi Carti
+- 😄 Pronouns: Playboi/Carti
+- ⚡ Fun fact: Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
+- Playboi Carti
